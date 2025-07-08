@@ -1,4 +1,4 @@
-# Yang-n-G-r-nt-leme
+# Yangin Goruntuleme
 Orman Yangınları Öncesi ve sonrası
 
 
